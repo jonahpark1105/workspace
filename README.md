@@ -6,4 +6,4 @@ Let's code
 What's going on?  
 Yes, sir!  
 어ㅏ니머ㅣ;ㅓㄹㅁㄴ아ㅣ  
-
+2. 특기업데이트
